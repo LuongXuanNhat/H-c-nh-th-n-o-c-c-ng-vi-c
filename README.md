@@ -1,2 +1,2 @@
-# H-c-nh-th-n-o-c-c-ng-vi-c
+# HỌC NHƯ THỂ NÀO ĐỂ ĐI LÀM
 HOW TO STUDY FOR WORK
